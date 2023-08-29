@@ -8,7 +8,7 @@
 
 - 📫 How to reach me **joshiakanksha481@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/16y5Sl6cX_zkux_cjuAkeDqH6ap1S6udO/view?usp=sharing](https://drive.google.com/file/d/16y5Sl6cX_zkux_cjuAkeDqH6ap1S6udO/view?usp=sharing)
+- 📄 Know about my experiences [Resume](https://drive.google.com/file/d/1fCW5jmBlVy4W4E_mkLsVDOwHxlcR6vm_/view)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
